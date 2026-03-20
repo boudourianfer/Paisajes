@@ -1,1 +1,2 @@
 # Paisajes
+La reproducción fotográfica de paisajes lejanos ricos en pequeños detalles suele defraudar, lo mismo que la de aquellos cuya característica principal es la gradación de verdes. Tales como los prados con fondo de bosque. La inclusión en primer término de un objeto de tamaño aproximadamente conocido, por ejemplo, un árbol, nos servirá de patrón para apreciar las distancias en la foto y crear la impresión de profundidad. 
